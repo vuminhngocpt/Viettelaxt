@@ -1,3 +1,3 @@
 ### Rom cho các sản phẩm của viettel như tv360 , điện thoại , bộ phát wifi ... 
 
-[tv360 mã ]
+[tv360 mã hp40a android 10]
